@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Kikuii386
+- 👀 I’m interested in to rich
+- 🌱 I’m currently learning to coding
